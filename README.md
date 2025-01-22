@@ -1,6 +1,6 @@
 DISCLAIMER: THIS IS FOR EDUCATIONAL PURPOSES ONLY!
 
-[Key](https://github.com/Stormzydaskid/WinRar-Key/releases/download/Winrar/rarreg.key)
+[Download📂](https://github.com/Stormzydaskid/WinRar-Key/releases/download/Winrar/rarreg.key)
 
 ![WWinRar.png](https://github.com/Stormzydaskid/WinRar-Key/blob/main/WinRAR.png)
 

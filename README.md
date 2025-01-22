@@ -1,5 +1,7 @@
 DISCLAIMER: THIS IS FOR EDUCATIONAL PURPOSES ONLY!
 
+[Discord](https://www.discord.gg/invite/CZmPKce5Ab)
+
 [Download📂](https://github.com/Stormzydaskid/WinRar-Key/releases/download/Winrar/rarreg.key)
 
 ![WWinRar.png](https://github.com/Stormzydaskid/WinRar-Key/blob/main/WinRAR.png)

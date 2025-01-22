@@ -1,2 +1,6 @@
+DISCALMER: THIS IS FOR EDUCATIONAL PURPOSES ONLY!
+
 # WinRar-Key
 Download the file to the winrar directory 
+
+DISCALMER: THIS IS FOR EDUCATIONAL PURPOSES ONLY!

@@ -1,4 +1,11 @@
-DISCLAIMER: THIS IS FOR EDUCATIONAL PURPOSES ONLY!
+
+________  .___  __________________ .____       _____  .___   _____  _____________________ 
+\______ \ |   |/   _____/\_   ___ \|    |     /  _  \ |   | /     \ \_   _____/\______   \
+ |    |  \|   |\_____  \ /    \  \/|    |    /  /_\  \|   |/  \ /  \ |    __)_  |       _/
+ |    `   \   |/        \\     \___|    |___/    |    \   /    𝐘    \|        \ |    |   \
+/_______  /___/_______  / \______  /_______ \____|__  /___\____|__  /_______  / |____|_  /
+        \/            \/         \/        \/       \/            \/        \/         \/
+                           THIS IS FOR EDUCATIONAL PURPOSES ONLY!
 
 ![WWinRar.png](https://github.com/Stormzydaskid/WinRar-Key/blob/main/WinRAR.png)
 
